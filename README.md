@@ -1,2 +1,0 @@
-gunung iya
-c
